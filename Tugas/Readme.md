@@ -1,0 +1,1 @@
+Referensi blog yang saya ambil adalah https://onstock.id/blog nah blog tersebut selalu update berita setiap hari jadi saya ambil contoh pada tanggal 13 Maret 2023 jam 14.00 sesuai dengan hasil screenshot referensi blog saya.
